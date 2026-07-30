@@ -80,7 +80,7 @@ We may update this Privacy Policy from time to time. We will update the "Last up
 
 If you have questions about this Privacy Policy or your data, contact us at:
 
-**Email:** 01rubeenakhan@gmail.com
+**Email:** contct@namazlockprayertimes.com
 
 ## Governing Law
 

@@ -94,4 +94,4 @@ If any provision of these Terms is found unenforceable, the remaining provisions
 
 If you have questions about these Terms, contact us at:
 
-**Email:** 01rubeenakhan@gmail.com
+**Email:** contct@namazlockprayertimes.com
